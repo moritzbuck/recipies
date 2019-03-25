@@ -1,5 +1,5 @@
-* 2 avocados
-* 1 lime
-* 2 tsp salt
-* 1/4 tsp corriander seeds
-* 1 pinch chili
+* 1 chicken
+* 200 mL rice
+* 1 pinch safran
+* 4 gambas de montana
+* 2 tsp pimenton dulce

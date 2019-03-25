@@ -1,5 +1,4 @@
-* chop avocados
-* squeeze lime
-* add salt
-* add spices
-* and mix well
+* fry gambas
+* remove from pan
+* fry chicken
+* remove from pan
