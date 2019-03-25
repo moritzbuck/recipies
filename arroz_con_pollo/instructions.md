@@ -9,5 +9,8 @@
 * fry chicken
 * remove from pan
 * peal and chop tomatoes
+* fry them 
 * add caldo
+* add chicken again
 * cook it!
+* add rice
