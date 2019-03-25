@@ -5,3 +5,5 @@
 * fry chicken
 * remove from pan
 * peal and chop tomatoes
+* add caldo
+* cook it!
