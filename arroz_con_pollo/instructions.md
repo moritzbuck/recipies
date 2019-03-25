@@ -1,12 +1,9 @@
 * prepare chicken by removing breast and legs
-* prepare caldo:
-  - take the bones and wings of chicken
-  - boil with a red paprika and some garlics
 * put a good amount of oil in the paella
 * fry gambas
 * remove from pan
-* fry chicken
+* fry chicken breasts and legs
 * remove from pan
 * peal and chop tomatoes
-* add caldo
+* add water
 * cook it!
